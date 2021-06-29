@@ -1,1 +1,1 @@
-# The-beauty-of-Islam
+# The Beauty Of ISLAM
